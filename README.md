@@ -8,3 +8,5 @@
 Zsolti1111/Zsolti1111 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+) MotorolaMotoG2005Gtefonm-van.Yetteles,vagyok.Nem.működik.aaVoLTE...
+Valaki.)tud.sgíteni.hogy.működésre.bírjam?
